@@ -1,1 +1,1 @@
-week 1 and 2 assignment
+week 1 , 2 and 3 assignment
